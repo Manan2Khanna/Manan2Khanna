@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I am Manan Khanna 🌟✨
 
 <!--
 **Manan2Khanna/Manan2Khanna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
